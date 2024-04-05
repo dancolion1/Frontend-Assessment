@@ -1,6 +1,6 @@
 ## oleabhiele_daniel_donald_s_application7
 
-Generated with ❤️ from [DhiWise](https://www.dhiwise.com)
+
 
 ## Description
 
